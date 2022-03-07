@@ -4,3 +4,10 @@ this script deletes the unused files in  temp Directory
 hbsUHDvbas
 dzjnvuneadjsbf
 njsadnvjndj
+
+
+nhhjzBJndvkjbds
+znxjcnjs
+s jcxnjsn
+sajxncjns
+
